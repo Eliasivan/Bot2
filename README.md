@@ -1,4 +1,4 @@
-https://telegra.ph/file/49baa73f0c2f42ad7e85b.png >🌼𝗖𝗿𝗲𝗮𝗱𝗼𝗿: Tallycleark Ender
+🌼𝗖𝗿𝗲𝗮𝗱𝗼𝗿: Tallycleark Ender
 
 >🌼𝗗𝗲𝘀𝗮𝗿𝗿𝗼𝗹𝗹𝗮𝗱𝗼𝗿𝗲𝘀: 𝙰𝚉𝙰𝙼𝙸
 
